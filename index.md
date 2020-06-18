@@ -2,7 +2,7 @@
 
 ## Seine Vorlieben sind:
 * Sauerbraten
-* Bier*
+* Bier
 * IOT
 
 Uwe Ackerschott ist der amtierende Schützenkönig der Schützenbruderschaft Hillmicke.
